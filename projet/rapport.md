@@ -1,9 +1,8 @@
 YOUNES HADDI
 
 
-![WhatsApp Image 2025-10-30 at 11 02 58_3f55bf9a](https://github.com/user-attachments/assets/150a01c2-fc38-4c81-b32f-9bcf35dbb018)
 
-
+<img src="[adamlabrahmi.jpg](https://github.com/user-attachments/assets/150a01c2-fc38-4c81-b32f-9bcf35dbb018)" width="300" height="300" />
 
 
 
